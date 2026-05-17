@@ -1,4 +1,4 @@
-Privacy Policy for Letter Blast
+#Privacy Policy for Letter Blast
 Effective Date: May 14, 2026
 Last Updated: May 17, 2026
 
